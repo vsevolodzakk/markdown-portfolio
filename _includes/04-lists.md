@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Traveling
+2. Music
+3. Gaming
+4. Creating smtn interesting
